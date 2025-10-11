@@ -1,0 +1,1 @@
+I’m Sunkari Rama Harshini, a B.Tech Artificial Intelligence student at IIT Hyderabad with a strong interest in machine learning, data analysis, and software development. I’m passionate about building intelligent systems and continuously learning to create real-world impact.
